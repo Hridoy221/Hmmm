@@ -1,2 +1,2 @@
 # windows11
-https://hridoy221.github.io/Hmmm/
+https://hridoy221.github.io/Hmm/
